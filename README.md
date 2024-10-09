@@ -1,0 +1,2 @@
+# Pr_2_2do_Mendez_Sanchez_Maria_Guadalupe_Yazmin_1199_3W
+Practica 2 Segundo Parcial
